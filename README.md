@@ -1,1 +1,0 @@
-# Krishna-Store-Sales-Analysis-
